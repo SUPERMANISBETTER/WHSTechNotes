@@ -6,3 +6,5 @@ I think it is wrong to not have our phones during school hours. because we need 
 Evidence shows that the negative effects of a school-wide phone ban can include increased student anxiety and distress, especially on non-phone days, without a proven improvement in academic performance or overall mental health. Bans may also prevent students from contacting parents for emergencies, and while they can reduce classroom distraction, a more balanced approach might be more effective than a complete restriction.
 this proves that them without their phones can lead to sickness or axienty if they're not on their phone in time. 
 PLEASE LET US HAVE OUR PHONE BACK!!!
+# September 8, 2025
+Im interested on being a mechanic which technology helps by mechanics in almost every aspect of their work, from highly accurate diagnostic tools to software that manages the entire repair process. This shift from purely manual work to tech-driven diagnostics and communication increases efficiency, accuracy, and customer satisfaction. 
