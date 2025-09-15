@@ -8,3 +8,8 @@ this proves that them without their phones can lead to sickness or axienty if th
 PLEASE LET US HAVE OUR PHONE BACK!!!
 # September 8, 2025
 Im interested on being a mechanic which technology helps by mechanics in almost every aspect of their work, from highly accurate diagnostic tools to software that manages the entire repair process. This shift from purely manual work to tech-driven diagnostics and communication increases efficiency, accuracy, and customer satisfaction. 
+# September 15, 2025
+Claim:My idea for this AI project is to have it talk about how a government runs through the wolrd
+Evidence:
+The Presidential AI Challenge was officially launched by the White House on August 26, 2025, to inspire K–12 students, educators, and mentors to use artificial intelligence (AI) to solve real-world community problems. The challenge was mandated by Executive Order 14277, "Advancing Artificial Intelligence Education for American Youth," which President Donald J. Trump signed on April 23, 2025. 
+Reasoning:I believe this is to teach students and children about solving the world's problems and how to make it better for the world and the people
