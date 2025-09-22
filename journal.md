@@ -13,3 +13,7 @@ Claim:My idea for this AI project is to have it talk about how a government runs
 Evidence:
 The Presidential AI Challenge was officially launched by the White House on August 26, 2025, to inspire K–12 students, educators, and mentors to use artificial intelligence (AI) to solve real-world community problems. The challenge was mandated by Executive Order 14277, "Advancing Artificial Intelligence Education for American Youth," which President Donald J. Trump signed on April 23, 2025. 
 Reasoning:I believe this is to teach students and children about solving the world's problems and how to make it better for the world and the people
+# September 22, 2025
+I think working in a virtural store is a good idea
+Applications for roles in the virtual store open today (3rd June, 2024) and close on Sunday 16th June, with paid shifts for 10 new co-workers up for grabs. Successful applicants will be able to flex their skills, help customers, and get promoted to move departments, just like in the real world.   
+It supports by helping workers to actually work for something good
