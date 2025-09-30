@@ -17,3 +17,7 @@ Reasoning:I believe this is to teach students and children about solving the wor
 I think working in a virtural store is a good idea
 Applications for roles in the virtual store open today (3rd June, 2024) and close on Sunday 16th June, with paid shifts for 10 new co-workers up for grabs. Successful applicants will be able to flex their skills, help customers, and get promoted to move departments, just like in the real world.   
 It supports by helping workers to actually work for something good
+# September 30, 2025
+The "6-7" meme originated on TikTok in early 2025 and is tied to a repeated lyric in a rap song, a viral clip of an NBA player, and an internet personality. Its popularity then surged after a video of a child yelling the phrase at a basketball game went viral. The phrase has no concrete meaning and is often used nonsensically. A song: The lyric "6-7" is repeated in the song "Doot Doot (6 7)" by the rapper Skrilla, released in late 2024.
+LaMelo Ball: The phrase was first used on social media in edits of NBA player LaMelo Ball, who is 6 feet 7 inches tall. This created an early association with basketball.
+Taylen "TK" Kinney: High school basketball prospect Taylen "TK" Kinney also helped popularize the phrase through his frequent use of it in Overtime Elite content, including a viral clip where he ranked a Starbucks drink with "six, seven". 
